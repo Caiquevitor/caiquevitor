@@ -5,3 +5,5 @@ ola meu nome e caique vitor 1A
 estou estudando no alura 
 estou apredendo italiano
 aqui vou compartinhar meus projetos
+gosto de jogar bola 
+aqui vai ficar meu projeto ✔️
